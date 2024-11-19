@@ -17,7 +17,7 @@
 * JavaScript
 
 # Contacto
-> Phone: +43 626-34-07-75 📞 <br>
+> Phone: +34 626-34-07-75 📞 <br>
 > Email: andres24villani08@gmail.com 📧 <br>
 > LinkedIn: www.linkedin.com/in/andres-de-jesus-villani-gonzalez 👔 <br>
 
